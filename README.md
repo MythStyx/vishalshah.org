@@ -1,2 +1,0 @@
-# vishalshah.org
-vishalshah.org
